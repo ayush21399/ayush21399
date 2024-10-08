@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ayush21031999@gmail.com**
 
-- ⚡ Fun fact **Loves escape rooms!!!**
+- ⚡ Fun fact **Pixel Art Creator!!!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
